@@ -6,4 +6,4 @@ I am a lifelong learner. I am currently learning strategy and data product manag
 
 Thank you for checking out my profile. 
 
-[Learn More about me &rarr;](http://www.anjanpandey.com)
+[Learn More &rarr;](http://www.anjanpandey.com)
