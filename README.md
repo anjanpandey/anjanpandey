@@ -1,4 +1,4 @@
-Hey 👋, I am a founder of healcovery. 
+Hey 👋, I am Anjan, founder of healcovery. 
 
 I am a lifelong learner. I like to sing, travel, and sketch. 
 
